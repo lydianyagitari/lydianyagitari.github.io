@@ -1,1 +1,0 @@
-# lydianyagitari.github.io
